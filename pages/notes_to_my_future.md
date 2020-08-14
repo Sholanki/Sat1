@@ -1,6 +1,8 @@
 ---
 title: Notes to my future
-tags:
+tags: #tobereadanytime
 ---
-
-## 
+## Dear Sholanki,
+Life is going to be hard as you age. This is me writing when I am 29 years old having a healing back and asked not to move around. The past me would have scoffed at me and said, "You know what? It is just for one day loser. Suck it up and bear it. You got this". The current me is bitter who is imagining all the worse things possible and thinking of a really bleak future of when I will never be able to move. I think I have always oscillated between extreme positivity and extreme negativity. When I was from 25-28, I was extremely positive. Nothing would bring me down but now in this current shambles of life, I have forgotten to look outside and smile and to be positive. Nothing lasts, everything fades. This crisis will fade and the last man standing will be you my dear. So, I do not know where you are and what you are doing. All I know is that just take it in, experience the present fully. Literally, experience it, soak it in, soak the present moment. If it is bitter, feel the bitterness till there is nothing to squeeze out. If it is a celebration, celebrate to the fullest. If you are angry do it with full gusto; let the whole world know you are angry - starting from your world; whatever you do; do it with vigor; do it full heartedly. Do not let fear or any restrictions or others' opinions chain you to not express fully as you want. If you want to go against someone , go ahead; there is no need for political correctness. If you want to stand for someone, do so with vigor; there is no qualms in expressing your loyalty. If you are hurt or broken, express it. Let it all out. That's all - do not keep anything to yourself - express as you feel and as you are and you will be sane. Do not be afraid to hurt and do not be afraid to get hurt because the lesson that I learnt today is that I hurt myself by not expressing and so it is much better to express and let it out and have clarity of communication and be sane. Remain sane sweetheart and enjoy.
+Love
+Your past
