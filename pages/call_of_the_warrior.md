@@ -3,7 +3,7 @@ title: Call of the warrior
 tags:
 ---
 
-## The little girl newly turned warrior went on a war
+The little girl newly turned warrior went on a war,<br>
 With battle-scars on her face and soul she came from afar
 So afraid was she, after coming back
 She forgot her moral principles and of her long held mind
